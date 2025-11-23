@@ -1,0 +1,2 @@
+# przykladowestudiopieknosci
+Gcompany
